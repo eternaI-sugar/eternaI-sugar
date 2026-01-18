@@ -8,7 +8,4 @@ ${\textsf{\color{#3365f9}I'm not that active on pony town as I used to be but I 
 
 ${\textsf{\color{#3365f9}I do not want nor wish to be added on random occasions as these requests will be denied half-heartedly.} }$
 
-${\textsf{\color{#3365f9}I'm a very selective person with my friends. I apologize if I upset you.} }$
-
-
 ![Watching_you_always](https://github.com/user-attachments/assets/5be7e147-94db-46ca-8d86-45b6dccc7839)
